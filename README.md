@@ -1,3 +1,8 @@
+<div align="center">
+  <img width="1500" height="250" alt="Untitled37_20260217152346" src="https://github.com/user-attachments/assets/1b1f0e9e-a4b5-4c0c-9474-d4ab0c975f39" />
+</div>
+
+
 <p align="center">
   ${\color{#663B7D}“Tu}$ ${\color{#9F6CBA}es \space belle \space à \space force}$
 ${\color{#663B7D}d'être.”}$
@@ -8,4 +13,8 @@ ${\color{#663B7D}d'être.”}$
 
 <div align="center">
   <img src="https://github.com/user-attachments/assets/87d5ac88-f141-477d-8c7b-8292dd337357"/>
+</div>
+
+<div align="center">
+  <img width="1500" height="250" alt="Untitled37_20260217152406" src="https://github.com/user-attachments/assets/7d21e14f-eb3a-40b6-b02d-cdae402673b1" />
 </div>
