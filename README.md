@@ -13,6 +13,7 @@ ${\color{#663B7D}d'être.”}$
 
 <div align="center">
   <img src="https://github.com/user-attachments/assets/87d5ac88-f141-477d-8c7b-8292dd337357"/>
+  <img src="https://api.visitorbadge.io/api/visitors?user=puqitv&repo=puqitv&label=count&labelColor=%23663B7D&countColor=%239F6CBA&style=flat&leftCount=10940"/>
 </div>
 
 <div align="center">
