@@ -27,7 +27,7 @@ $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ b
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ mascandrogyne + polysexual}}$</h4>
 
 <h4 align="right">$\color{#b893e5}{\textsf{join my smp c: ‎ ‎  ‎  ‎  ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ }}$<br>
-$\color{#b893e5}{\textsf{adults only, [click](https://smphill.straw.page) for info. ‎ ‎  ‎ ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎  ‎ }}$<br>
+$\color{#b893e5}{\textsf{adults only, check sp for info. ‎ ‎  ‎ ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎  ‎ }}$<br>
 $\color{#b893e5}{\textsf{guiding.light on disc if i miss yr whisp ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎   ‎ ‎ }}$</h4>
 
 <br> 
