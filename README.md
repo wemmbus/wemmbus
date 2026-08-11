@@ -65,7 +65,7 @@ $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ s
 <img src="https://i.postimg.cc/W4GLdq21/div1.png"
   width="850"/>
    
-wemmbu count: $\color{yellow}{\text{34}}$
+wemmbu count: $\color{yellow}{\text{35}}$
    
 GIFT ME MORE WEMMBU PONIES ^_^
 
