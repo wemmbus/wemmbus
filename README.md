@@ -10,7 +10,7 @@ $\color{#9175b2}{\textsf{The unholy offspring of lightning and death itself. Nev
 <img src="https://i.postimg.cc/W4GLdq21/div1.png"
   width="850"/>
 
-[syswide info](https://www.patreon.com/ventiirl/about) ⭑ [prns.cc](https://pronouns.cc/@zep/wyvern) ⭑ creds: [1](https://www.tumblr.com/thecutestgrotto/774039070046404608/please-i-beg-you-how-to-train-your-dragon?source=share) [2](https://x.com/PipePie_) [3](https://www.instagram.com/miyo_wwpi/)
+[rentry](https://rentry.co/elytra-mace) ⭑ [prns.cc](https://pronouns.cc/@zep/wyvern) ⭑ [strawp](https://elymace.straw.page) ⭑ [ata](https://wemmbus.atabook.org/)
    
 <p align="center"> 
 <img src="https://i.postimg.cc/7LscG3Fq/div2.png"
@@ -27,7 +27,7 @@ $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ b
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ mascandrogyne + polysexual}}$</h4>
 
 <h4 align="right">$\color{#b893e5}{\textsf{join my smp c: ‎ ‎  ‎  ‎  ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ }}$<br>
-$\color{#b893e5}{\textsf{adults only, check sp for info. ‎ ‎  ‎ ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎  ‎ }}$<br>
+$\color{#b893e5}{\textsf{adults only, check link for info. ‎ ‎  ‎ ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎  ‎ }}$<br>
 $\color{#b893e5}{\textsf{guiding.light on disc if i miss yr whisp ‎ ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎   ‎ ‎ }}$</h4>
 
 <br> 
@@ -60,12 +60,21 @@ $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ i
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ UU sourced. NOT LIFESTEAL.}}$<br>
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ iffy w/ sourcemates so ask b4 talking abt source stuff}}$<br>
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ source doubles dni unless completely detached}}$<br>
+   <br>
+<p align="center"> 
+<img src="https://i.postimg.cc/7LscG3Fq/div2.png"
+  width="500"
+  width="850"/>
 
+[syswide info](https://www.patreon.com/ventiirl/about) ⭑ [join my smp](https://smphill.straw.page/) ⭑ creds: [1](https://www.tumblr.com/thecutestgrotto/774039070046404608/please-i-beg-you-how-to-train-your-dragon?source=share) [2](https://x.com/PipePie_) [3](https://www.instagram.com/miyo_wwpi/)
+      <br>
+         <br>
 <p align="center"> 
 <img src="https://i.postimg.cc/W4GLdq21/div1.png"
   width="850"/>
+   <br>
    
-wemmbu count: $\color{yellow}{\text{35}}$
+wemmbu count: $\color{yellow}{\text{38}}$
    
 GIFT ME MORE WEMMBU PONIES ^_^
 
