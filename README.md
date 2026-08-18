@@ -23,7 +23,7 @@ $\color{#9175b2}{\textsf{The unholy offspring of lightning and death itself. Nev
 
 <h4 align="left">$\color{#b893e5}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ ˚⟡ ˖ ࣪  wyvern / wemmbu / storm  ₊˚⊹ ˙  ~  nicknames encouraged}}$<br>
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ u can make up whtvr pronouns 4 me, jst don't use they/them}}$<br>
-$\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ bodily 21. don't try2 add me if yr under 16}}$<br>
+$\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ bodily 21. don't try2 add me on pt/disc if yr under 16}}$<br>
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ mascandrogyne + polysexual}}$</h4>
 
 <h4 align="right">$\color{#b893e5}{\textsf{join my smp c: ‎ ‎  ‎  ‎  ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ }}$<br>
@@ -53,6 +53,10 @@ $\color{#9175b2}{\textsf{I looked at him… and I saw myself.}}$</h6>
 $\color{#b893e5}{\textsf{don't c+h unless i have it in my name ‎ ‎  ‎ ‎  ‎  ‎ ‎  ‎ ‎ ‎  ‎ ‎ }}$<br>
 $\color{#b893e5}{\textsf{DO NOT copy or inspo from ANY of my ponies ‎ ‎   ‎ ‎   ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ }}$<br>
 $\color{#b893e5}{\textsf{whisp 2 int! i love 2 chat but i miss whisps often ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ ‎  ‎ ‎ }}$</h4>
+<br> 
+<br>
+<img src="https://postimg.cc/NKZ8W0Pg" width="50%" align="left"/>
+&nbsp; &nbsp; &nbsp; &nbsp;
 <br> 
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
 <h4 align="left">$\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ i'm jst one alter in a system}}$<br>
