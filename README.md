@@ -55,7 +55,7 @@ $\color{#b893e5}{\textsf{DO NOT copy or inspo from ANY of my ponies ‎ ‎   �
 $\color{#b893e5}{\textsf{whisp 2 int! i love 2 chat but i miss whisps often ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ ‎  ‎ ‎ }}$</h4>
 <br> 
 <br>
-<img src="https://postimg.cc/NKZ8W0Pg" width="50%" align="left"/>
+<img src="https://i.postimg.cc/1z3WVnGN/transpanrt.png" width="50%" align="left"/>
 &nbsp; &nbsp; &nbsp; &nbsp;
 <br> 
  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ <br>
