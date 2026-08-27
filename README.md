@@ -23,7 +23,7 @@ $\color{#9175b2}{\textsf{The unholy offspring of lightning and death itself. Nev
 
 <h4 align="left">$\color{#b893e5}{\textsf{‎ ‎ ‎  ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ ‎ ˚⟡ ˖ ࣪  wyvern / wemmbu / storm  ₊˚⊹ ˙  ~  nicknames encouraged}}$<br>
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎  ‎ u can make up whtvr pronouns 4 me, jst don't use they/them}}$<br>
-$\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ bodily 21. don't try2 add me on pt/disc if yr under 16}}$<br>
+$\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ bodily 22. don't try2 add me on pt/disc if yr under 16}}$<br>
 $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ mascandrogyne + polysexual}}$</h4>
 
 <h4 align="right">$\color{#b893e5}{\textsf{join my smp c: ‎ ‎  ‎  ‎  ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ }}$<br>
@@ -74,7 +74,7 @@ $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ s
   width="850"/>
    <br>
    
-wemmbu count: $\color{yellow}{\text{43}}$
+wemmbu count: $\color{yellow}{\text{44}}$
    
 GIFT ME MORE WEMMBU PONIES ^_^
 
