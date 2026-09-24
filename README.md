@@ -76,7 +76,7 @@ $\color{#b893e5}{\textsf{ ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎  ‎ ‎ s
 
    <a href="https://hits.sh/github.com/wemmbus/"><img alt="Hits" src="https://hits.sh/github.com/wemmbus.svg?label=night%20lights%20%E2%AD%91&extraCount=264&color=c57e52&labelColor=481f54"/></a>
    
-wemmbu count: $\color{yellow}{\text{48}}$
+wemmbu count: $\color{yellow}{\text{50}}$
    
 GIFT ME MORE WEMMBU PONIES ^_^
 
