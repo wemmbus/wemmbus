@@ -10,7 +10,7 @@ $\color{#9175b2}{\textsf{The unholy offspring of lightning and death itself. Nev
 <img src="https://i.postimg.cc/W4GLdq21/div1.png"
   width="850"/>
 
-[rentry](https://rentry.co/elytra-mace) ⭑ [prns.cc](https://pronouns.cc/@zep/wyvern) ⭑ [strawp](https://elymace.straw.page) ⭑ [ata](https://wemmbus.atabook.org/)
+[rentry](https://rentry.co/orbitalstrike) ⭑ [prns.cc](https://pronouns.cc/@zep/wyvern) ⭑ [strawp](https://elymace.straw.page) ⭑ [ata](https://wemmbus.atabook.org/)
    
 <p align="center"> 
 <img src="https://i.postimg.cc/7LscG3Fq/div2.png"
